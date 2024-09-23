@@ -1,6 +1,5 @@
 ### Seja bem vindo 🫀
-meu nome é Ana Carolina 
-eu estudo pela manhã
-gosto de comer doce 
+Meu nome é Ana Carolina 
+Sou babá 
 ### Para entrar em contato:
 insta: anacarolin_5 
